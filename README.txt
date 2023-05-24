@@ -18,10 +18,6 @@ its original authors, with these credits being displayed in an easily viewable
 medium directly included within the medium in which this content is displayed
 and/or used.
 
-By accepting this content, Plexverse and affiliates accept and agree to adhere 
-to these terms and conditions, and agree to make every reasonable effort to 
-ensure that these terms and conditions are properly executed.
-
 ===============================================================================
 6eboy9 (Need to find MTHD of contact)
 
